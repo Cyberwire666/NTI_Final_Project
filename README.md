@@ -76,7 +76,7 @@ Total subnets used: **17**
 **Yehia Tarek**  
 Cyber Security Student @ Alexandria National University  
 NTI Network Security Trainee  
-[GitHub Profile](https://github.com/yehia-dev)
+[GitHub Profile](https://github.com/Cyberwire666)
 
 ---
 
